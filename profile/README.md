@@ -1,3 +1,3 @@
 # Hi
 
-![](https://i.imgur.com/fZnnn1J_d.webp?maxwidth=1600&fidelity=grand)
+![](https://i.imgur.com/DG0xpf8_d.webp?maxwidth=1920&fidelity=grand)
